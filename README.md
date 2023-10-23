@@ -12,4 +12,4 @@ Throughout my previous professional experiences, I've had the opportunity to dev
 Currently, I'm seeking an opportunity to expand my skills and gain valuable real-world experience. I'm committed to developing a career path to expand my work experience.
 
 #### *Here is my professional page:*
-[LinkedIn] (https://www.linkedin.com/in/gabrielambnogueira/)
+[LinkedIn](https://www.linkedin.com/in/gabrielambnogueira/)
