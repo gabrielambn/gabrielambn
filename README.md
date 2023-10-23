@@ -1,6 +1,6 @@
-### Hi there 👋
+## Hi there 👋,
 
-## **Welcome!**
+### I'm Gabriela, nice to meet you.
 
 ### *About myself...*
 
